@@ -1,2 +1,2 @@
 # koraware_info
-info
+best info ever
